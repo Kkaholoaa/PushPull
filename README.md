@@ -5,3 +5,4 @@ Hi Melissa, it's Kai and today we're practicing pushing and pulling for git hub!
 Are you ready?
 Yes. Are you? 
 How are you?
+im good, how are you?
