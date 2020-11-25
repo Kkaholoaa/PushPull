@@ -48,3 +48,6 @@ so, we love caroline so much!
 If you figured it out imma laugh lmaooo
 
 road work ahead...
+uhhhh yeah I sure hope it doessss
+
+hey im lesbian...
